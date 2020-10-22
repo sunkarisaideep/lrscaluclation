@@ -1,0 +1,2 @@
+# lrscaluclation
+Telangana Government announced a scheme that enables people to regularise their land and buildings. Under the land regularisation Scheme (LRS) and Building Regularisation Scheme (BRS), all lands and buildings, the latter constructed as of October 28 are eligible to avail the provisions of the scheme. As per the scheme, applicants under the LRS/BRS scheme can apply online by paying Rs 10,000. After being examined at various departments, within six months it would be finalised.
